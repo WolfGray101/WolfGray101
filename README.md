@@ -22,8 +22,8 @@
 
 ### You can contact me:
 
-#### email: 5565486@mail.ru
-#### tg: @wolfgray
+#### * email: 5565486@mail.ru
+#### * tg: @wolfgray
 
 
 <!--
