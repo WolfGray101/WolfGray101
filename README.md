@@ -1,5 +1,5 @@
 ### Hi there 👋
-### I`m Konstantin & I`m frontend devrloper from Belarus
+### I'm Konstantin & I'm frontend devrloper from Belarus
 
 ---
 
